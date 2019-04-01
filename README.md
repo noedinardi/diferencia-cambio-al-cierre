@@ -1,0 +1,1 @@
+# diferencia-cambio-al-cierre
